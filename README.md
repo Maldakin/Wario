@@ -1,2 +1,0 @@
-# ZyM
-Pagina ZyM
